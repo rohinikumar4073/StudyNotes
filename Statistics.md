@@ -5,3 +5,5 @@ In parallel I am reading various reports from different sector. Today I have rea
 There is an aricle regarding need for Urban Employment guarentee scheme. 
 There author discuss  about the COvid impact, it  shows the urban people are vunerable to various issues.
 https://www.theindiaforum.in/article/time-right-urban-employment-guarantee-programme
+List of  surveys.
+https://cse.azimpremjiuniversity.edu.in/covid19-analysis-of-impact-and-relief-measures/#other_surveys
